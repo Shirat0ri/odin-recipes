@@ -1,1 +1,1 @@
-These are the recipes of Alkaloid (Ensemble Stars) member's favorite foods.
+ These are the recipes of Alkaloid (Ensemble Stars) member's favorite foods.
